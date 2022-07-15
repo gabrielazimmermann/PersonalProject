@@ -1,3 +1,5 @@
 # Personal Site
 
--I'm trying
+- I can everything that I want.
+
+I'm able, i'm capable, i'm done
